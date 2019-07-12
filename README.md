@@ -1,0 +1,2 @@
+# CHOBITS
+CK私有
